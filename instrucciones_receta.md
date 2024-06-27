@@ -7,4 +7,4 @@
 5. Coloca montones de masa en una bandeja para hornear.
 6. Hornea durante 10 minutos o hasta que los bordes estén dorados.
 7. Deja enfriar en la bandeja unos minutos y luego transfiere a una rejilla para enfriar completamente.
-
+8. Servir.

@@ -8,5 +8,5 @@
 - 3 tazas de harina de trigo
 - 1 cucharadita de bicarbonato de sodio
 - 2 cucharaditas de agua caliente
-- 1/2 cucharadita de sal
+- 1/3 cucharadita de sal
 - 2 tazas de chispas de chocolate

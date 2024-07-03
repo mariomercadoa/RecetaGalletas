@@ -10,3 +10,6 @@
 - 2 cucharaditas de agua caliente
 - 1/3 cucharadita de sal
 - 2 tazas de chispas de chocolate
+## Utensilios
+- Moldes para galletas
+- Batidora

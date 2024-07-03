@@ -1,6 +1,6 @@
 ## Ingredientes
 
-- 1 taza de mantequilla (a temperatura ambiente)
+- 1 taza de mantequilla ( 180 gramos a temperatura ambiente)
 - 1 taza de azúcar blanca
 - 1 taza de azúcar morena
 - 2 huevos

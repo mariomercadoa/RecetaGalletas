@@ -8,4 +8,5 @@
 6. Coloca montones de masa en una bandeja para hornear, pon una hoja de papel vegetal para horno.
 7. Hornea durante 15 minutos o hasta que los bordes estén dorados.
 8. Deja enfriar en la bandeja unos minutos y luego transfiere a una rejilla para enfriar completamente.
-9. Servir.
+9. Agradecer  los alimentos.
+10. Servir.
